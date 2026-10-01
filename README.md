@@ -16,7 +16,7 @@ ${\color{#e5aa8e}\textsf{ ࣪   ۫𓂅ㅤEllie}}$ ㅤㅤㅤ ${\color{#fcfaf7}\te
 
 ${\color{#d48d6b}\textsf{ ࣪⠀⠀𓏵⠀7teen}}$ ㅤㅤㅤ   ${\color{#e5aa8e}\textsf{Any ⬫ prns}}$  ㅤㅤㅤ ${\color{#d48d6b}\textsf{Autistic⠀ ⌒₊}}$
 
-${\color{#e5aa8e}\textsf{✧ㅤִ      1O/O8/26}}$ ㅤㅤ ${\color{#fcfaf7}\textsf{♡}}$  ㅤㅤㅤ ${\color{#e5aa8e}\textsf{Takenㅤ. ౨౿}}$
+${\color{#e5aa8e}\textsf{✧ㅤִ      O8/O9/26}}$ ㅤㅤ ${\color{#fcfaf7}\textsf{♡}}$  ㅤㅤㅤ ${\color{#e5aa8e}\textsf{Takenㅤ. ౨౿}}$
 
 ${\color{#e5aa8e}\textsf{ㅤㅤᰍ̼ㅤ ENG/ESP}}$ ㅤㅤㅤ  ${\color{#e5aa8e}\textsf{ㅤㅤElliot fictkinㅤ丶𐑞}}$
 
