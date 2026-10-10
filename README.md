@@ -8,7 +8,7 @@
   
 <img src="https://github.com/icedpuppy/icedpuppy/blob/2a823e2047ffaf95b96328e7845f81265ab4ee0b/pzbg1.webp" width="300">ㅤ 
 
-${\color{#e5aa8e}\textsf{ ࣪   ۫𓂅ㅤEllie}}$ ㅤㅤㅤ ${\color{#fcfaf7}\textsf{ou}}$ ㅤㅤㅤ ${\color{#e5aa8e}\textsf{Neil⠀⠀ྀི}}$
+${\color{#e5aa8e}\textsf{ ࣪   ۫𓂅ㅤEllie}}$ ㅤㅤㅤ ${\color{#fcfaf7}\textsf{ou}}$ ㅤㅤㅤ ${\color{#e5aa8e}\textsf{Mindy⠀⠀ྀི}}$
 
 ${\color{#d48d6b}\textsf{ ࣪⠀⠀𓏵⠀7teen}}$ ㅤㅤㅤ   ${\color{#e5aa8e}\textsf{Any ⬫ prns}}$  ㅤㅤㅤ ${\color{#d48d6b}\textsf{Autistic⠀ ⌒₊}}$
 
